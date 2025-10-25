@@ -58,3 +58,5 @@ As I continue to develop I am expanding my learning into new analytical techniqu
 🌐 *[www.linkedin.com/in/james-parker-58a38a269]*  
 
 ---
+
+⭐ *If you’re viewing this as part of my application, thank you for your time! I’d love to discuss how my analytical and visualization skills can bring value to your team.*
